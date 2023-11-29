@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KnightFury224
-- 👀 I’m interested in food
+- 👀 I’m interested in food and women
 - 🌱 I’m currently learning algebra
 - 💞️ I’m looking to collaborate on a bus
 - 📫 How to reach me by email
